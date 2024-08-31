@@ -4,7 +4,6 @@
 - 📸 @maisagrasiele_
 - 📚 1° ano do ensino médio
 - ✨ utilizo esse espaço para armazenamento e compartilhamento de projetos!
-
-📬 _você pode entrar em contato comigo_ -
+- 📬 você pode entrar em contato comigo -
 marcelino.maisa@escola.pr.gov.br
 ![]()
